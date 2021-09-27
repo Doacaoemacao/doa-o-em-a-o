@@ -1,1 +1,1 @@
-https://doacaoemacao.github.io/doa-o-em-a-o/
+https://github.com/Doacaoemacao/doa-o-em-a-o
